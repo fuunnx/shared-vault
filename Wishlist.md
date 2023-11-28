@@ -35,5 +35,6 @@ En ma qualité d'être humain, je dois malheureusement me laver.
 
 ## Outils
 
-- Mes habits s'abiment et mériteraient d'être réparés plutôt que jetés. J'ai déjà un peu de matériel de couture accumulé avec le temps, mais la boîte pour les ranger est trop petite. J'ai besoin d'une **trousse de couture** !
+Mes habits s'abiment et mériteraient d'être réparés plutôt que jetés. J'ai déjà un peu de matériel de couture accumulé avec le temps, mais la boîte pour les ranger est trop petite. 
+- J'ai besoin d'une **trousse de couture** !
 - Et en vrai, je sais réparer mais c'est pas toujours très joli. Si vous avez des livres, conseils, outils, etc. auxquels je n'ai pas pensé, je suis preneur :)

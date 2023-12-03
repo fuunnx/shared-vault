@@ -6,6 +6,9 @@ Jeux-vidéos
 Lecture
 - [La révolution du potager](https://www.laplage.fr/produit/263/9782383380054/la-revolution-du-potager)
 
+Jeux d'extérieur
+- Jeu de Kubb, la pétanque viking 
+
 ## Vêtements et accessoires
 
 - J'ai déjà un bon stock de vêtements, dont pas mal de **t-shirt**, mais il y en a [de très beaux sur Dephect](https://www.dephect.com/collections/t-shirts). Pour la taille, je fais du M - Prévoir un peu de temps pour la livraison. 
